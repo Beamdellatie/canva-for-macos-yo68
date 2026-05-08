@@ -1,4 +1,4 @@
-
+Canva for macOS advanced Plugin: batch processing & AI upscaling offers the most advanced Canva for macOS plugin, with batch processing and AI upscaling. Ideal for professional
 
 
 
